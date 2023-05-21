@@ -1,9 +1,9 @@
 # private
 # MENU CRACK
- ![IMG_20220610_041117](https://user-images.githubusercontent.com/88397313/172945609-2cb7eaf4-d74b-4d94-9bdb-98095e7ce49e.jpg)
+ ![IMG_20220610_041117](https://raw.githubusercontent.com/shinoby10/private/main/IMG_20230521_165600.jpg)
  
  # MENU DUMP
- ![IMG_20220610_041117](https://user-images.githubusercontent.com/88397313/172945609-2cb7eaf4-d74b-4d94-9bdb-98095e7ce49e.jpg)
+ ![IMG_20220610_041117](https://raw.githubusercontent.com/shinoby10/private/main/IMG_20230521_165600.jpg)
  
  # HASIL CRACK
- ![IMG_20220610_041117](https://user-images.githubusercontent.com/88397313/172945609-2cb7eaf4-d74b-4d94-9bdb-98095e7ce49e.jpg)
+ ![IMG_20220610_041117](https://raw.githubusercontent.com/shinoby10/private/main/IMG_20230521_165600.jpg)
